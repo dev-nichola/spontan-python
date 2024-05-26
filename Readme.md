@@ -1,0 +1,1 @@
+## Waduh spontan belajar python
